@@ -3,6 +3,3 @@
 ![](https://64.media.tumblr.com/3f8e83738c97cb238fabc6bad76cf62b/66f40aa7fc1b0321-13/s2048x3072/83a3c1dcfe5245286679b35be91f638aec568d17.pnj)
 
 
-<p align="center">
-    <img src="https://64.media.tumblr.com/362c5d7e3ae6ebc36fe4505e892b66da/ce369a681d94668b-92/s100x200/0f67b1f4e8ee46de070279dbad4826da1f2d5f34.pnj"><p align="center">
-    <img src="https://64.media.tumblr.com/7fef681c588c033d62557e2b1353eabb/ce369a681d94668b-be/s100x200/9700ebf483734503e800b91c4af2b4b8d7d35c51.pnj">
